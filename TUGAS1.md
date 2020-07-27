@@ -29,6 +29,7 @@ Contoh | Belanda membentuk kota Batavia sebagai tempat tinggal bangsa Eropa yang
     - Pembentukan status sosial di mana bangsa Eropa menduduki status sosial tertinggi, kemudian Asia dan Timur Jauh, dan untuk status yang terakhir ditempati bagi kaum pribumi.
   
   **3. Pertanyaan**
+  
   *- **Apa** yang menjadi tujuan bangsa Barat menjelajahi dunia selain mencari rempah-rempah?*
   
 Tujuan mereka yaitu menginginkan kekayaan melalui penjajahan atau yang lainnya. Bangsa Barat juga ingin mendapat kejayaan atau kemenangan. Tujuan yang lainnya yaitu ingin memperluas  keyakinan mereka (agama nasrani) di Asia.
